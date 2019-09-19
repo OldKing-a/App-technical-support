@@ -1,4 +1,5 @@
 # App-technical-support
-Yunwei initial phase is committed to promoting yunnan quality specialty products, let people in daily life efficient quality to buy yunnan specialty.
-Our app displays a full range of yunnan specialties, including fresh fruits and vegetables, popular delicacies, cereals, oils, rice and noodles, health care products and other yunnan specialties. These kinds of yunnan specialties can meet the user's choice and purchase. Meanwhile, our app makes a detailed classification of these yunnan specialties to help users quickly find the yunnan specialties they want to buy. Our app also has discount activities, so users can buy the best quality specialties at a more favorable price.
-If you have any questions, please contact us at xiaonai123gou@sina.com
+ Our App is committed to promoting delicious cakes and desserts,  so that people can purchase the best cakes and desserts efficiently and high-quality in their daily life. Our cake insist on using the best raw materials, do the most careful cake, refuse all additives, let people buy at ease, eat at ease.
+    Our app shows a full range of cake desserts, including birthday cake, cream cake, fruit cake, afternoon tea, meat floss cake, cocoa cake, chocolate toast and many other cake desserts. These full range of cake dessert can meet the user's choice and purchase. At the same time, our app classifies these cakes and desserts in a very detailed way, which helps users find the cakes and desserts they want to buy.
+    Our desserts make your life sweet
+If you have any questions, please contact us at schornakmorin@gmail.com
