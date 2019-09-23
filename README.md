@@ -1,5 +1,5 @@
 # App-technical-support
- Our App is committed to promoting delicious cakes and desserts,  so that people can purchase the best cakes and desserts efficiently and high-quality in their daily life. Our cake insist on using the best raw materials, do the most careful cake, refuse all additives, let people buy at ease, eat at ease.
-    Our app shows a full range of cake desserts, including birthday cake, cream cake, fruit cake, afternoon tea, meat floss cake, cocoa cake, chocolate toast and many other cake desserts. These full range of cake dessert can meet the user's choice and purchase. At the same time, our app classifies these cakes and desserts in a very detailed way, which helps users find the cakes and desserts they want to buy.
-    Our desserts make your life sweet
-If you have any questions, please contact us at schornakmorin@gmail.com
+Our app is dedicated to the promotion of beauty and skin care products, so that people can purchase high-quality beauty products efficiently and effectively in their daily life. We provide effective beauty products for users, so that users have more perfect skin, more beautiful image.
+Our app shows a full range of beauty and skin care products, including facial masks, cleansing products, water cream, essence, face cream and other beauty products. There are a wide variety of beauty and skincare products available for users to choose and purchase. At the same time, our app classifies these beauty products in a very detailed way to help users quickly find the beauty products they want to buy.
+Our App gives you beautiful makeup and beautiful life
+If you have any questions, please contact us at KaylynnWhoopi94@gmail.com
